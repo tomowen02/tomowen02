@@ -1,2 +1,2 @@
-Dev at [Sailia](https://sailia.co.uk)
+Developer at [Sailia](https://sailia.co.uk)
 
