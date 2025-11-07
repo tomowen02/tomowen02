@@ -1,2 +1,2 @@
-Lead Developer at [Sailia](https://sailia.co.uk)
+CTO/ Lead Developer at [Sailia](https://sailia.co.uk)
 
